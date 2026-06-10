@@ -1,4 +1,4 @@
-
+Professional rust cheat aimbot is the best rust cheat aimbot with silent aim and instant kill. Safe, reliable, and optimized for maximum performance.
 
 
 
